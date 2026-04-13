@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jenish17123
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning school
+- 🌱 I’m currently in Kathmandu University
 - 💞️ I’m looking to collaborate on any thing
 - 📫 How to reach me bjenish49@gmail.com
 
